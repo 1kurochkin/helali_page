@@ -1,1 +1,1 @@
-# Follow to https://flexwappa.github.io/helali_page/
+# Follow to https://1kurochkin.github.io/helali_page/
